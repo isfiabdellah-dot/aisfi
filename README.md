@@ -1,1 +1,1 @@
-# aisfi
+<a href="https://www.elite-1337.app"><img src="https://www.elite-1337.app/api/card/273105.svg?t=c_SV04U9ft4k-YT-QEnhqR5aC4AbCpDjQtN97VPvg6M&theme=dark&accent=lemon&font=lucida&crt=1" alt="Elite 1337 rank" width="840"></a>
